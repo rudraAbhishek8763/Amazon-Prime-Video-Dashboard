@@ -27,4 +27,4 @@ To explore the dashboard:
 
 ## Contact
 
-For inquiries and collaborations, feel free to reach out to sdeminhaj@gmail.com.
+For inquiries and collaborations, feel free to reach out to rudraabhishek1325@gmail.com.
